@@ -1,6 +1,10 @@
 # bingxgridbotperpetual
 a grid bot for bingx is been compile already 
 
+https://t.me/phytontraderselliot666
+https://t.me/phytontraderselliot666
+https://t.me/phytontraderselliot666
+
 
 https://www.youtube.com/watch?v=D9ciZF6t-CU
 
